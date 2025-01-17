@@ -1,9 +1,9 @@
 # pay-in-4-and-buying-digital-psn-gift-cards-zip
 To provide you with a comprehensive article regarding "Pay in 4 and buying digital PSN gift cards," I'll gather relevant information. Please hold on for a moment while I prepare this for you.
 
-[Click hear>> Free Xbox Gift card](https://ndoffer.com/xbk/)
+[Click hear>> Free Xbox Gift card](https://ndoffer.com/pgcg/)
 
-[Click hear>> Free Xbox Gift card](https://ndoffer.com/xbk/)
+[Click hear>> Free Xbox Gift card](https://ndoffer.com/pgcg/)
 
 
 Pay in 4 and Buying Digital PSN Gift Cards
